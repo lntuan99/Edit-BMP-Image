@@ -1,1 +1,1 @@
-Cái này làm ở KTLT. Xử lí ảnh nhè nhẹ thôi. cũng k có gì to tát lắm.
+Cái này làm ở KTLT năm nhất. Xử lí đơn giản ảnh định dạng file bmp
